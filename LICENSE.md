@@ -1,4 +1,4 @@
-
+Bartender for macOS rare Module: privacy-protection & file-archiving is the best Bartender for macOS module, featuring privacy-protection and file-archiving. Safe, efficient, and
 
 
 
